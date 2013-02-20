@@ -10,5 +10,5 @@
 
 ### Détails
 
-Réaliser la recette dans le verre.
-Placer les feuilles de menthe dans le verre, ajouter le sucre et le jus de citron ...
+Schtroumpfer la recette dans le verre.
+Schtroumpfer les feuilles de menthe dans le verre, schtroumpfer le sucre et le jus de citron ...
