@@ -2,8 +2,10 @@
 
 ### Ingrédients
 
-* Ingrédient 1
-* Ingrédient 2
+* 4.5 cl de gin
+* 1.5 cl de vermouth rouge
+* 1.5 cl de vermouth dry
+* 3 cl de jus d orange
 
 ### Détails
 
