@@ -15,6 +15,8 @@ Il faut agiter énergiquement le shaker.
 Servir dans un verre de type : verre à martini
 Décor : Un zeste d orange
 
+Boire c'est mal
+
 # Variantes
 
 ### Blue Screen
