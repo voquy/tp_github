@@ -11,6 +11,7 @@
 
 Tout schtroumpfer dans le shaker
 Schtroumpfer les ingrédients au shaker avec des glaçons et schtroumpfer le tout dans le verre en schtroumpfant la glace
+Il faut schtroumpfer énergiquement le shaker.
 Schtroumpfer dans un verre de type : verre à martini
 Décor : Un zeste d orange
 
