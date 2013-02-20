@@ -2,7 +2,7 @@
 
 ### Ingrédients
 
-* 2 oz Rhum
+* 4 oz Rhum
 * 1 oz Jus de Citron Vert
 * 7 feuilles de menthe
 * Eau gazeuse
