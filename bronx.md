@@ -14,8 +14,6 @@ Frapper les ingrédients au shaker avec des glaçons et verser le tout dans le v
 Il faut agiter énergiquement le shaker.
 Servir dans un verre de type : verre à martini
 Décor : Un zeste d orange
-<<<<<<< HEAD
-=======
 
 # Variantes
 
