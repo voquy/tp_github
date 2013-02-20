@@ -14,4 +14,13 @@ Frapper les ingrédients au shaker avec des glaçons et verser le tout dans le v
 Servir dans un verre de type : verre à martini
 Décor : Un zeste d orange
 
-Autre
+# Variantes
+
+### Blue Screen
+
+# Ingrédients
+
+* 75 cl Vodka
+* 4 cl Limonade
+* 10 cl Pulco
+* 20 cl Curaçao
