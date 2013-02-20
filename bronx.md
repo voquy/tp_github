@@ -9,7 +9,7 @@
 
 ### Détails
 
-* Tout mettre dans le shaker
-* Frapper les ingrédients au shaker avec des glaçons et verser le tout dans le verre en retenant la glace
-* Servir dans un verre de type : verre à martini
-* Décor : Un zeste d orange
+Tout mettre dans le shaker
+Frapper les ingrédients au shaker avec des glaçons et verser le tout dans le verre en retenant la glace
+Servir dans un verre de type : verre à martini
+Décor : Un zeste d orange
